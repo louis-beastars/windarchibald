@@ -16,5 +16,5 @@
 
 ◈﹒fav music artists: spellcasting, femtanyl, nero's day at disneyland, and one, odetari, mitski, rebzyxx, $i#dzy
 
-✶﹒strawpage in the making probs.....
+✶﹒strawpage done i fear
 
